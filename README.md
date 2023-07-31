@@ -1,5 +1,5 @@
 > 陈星宇相关资料\
-> By linyushu520\
+> By linyushu520
 
 > 如果你有陈星宇的帅照或是更多个人信息\
 > 请发Telegram @linyushu520 或 QQ 2105089730
