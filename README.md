@@ -23,11 +23,15 @@
 **已知此人成分**:原神(B服)、我的世界网易版、蛋仔派对、Todesk
 
 # ❤️我的帅照❤️😋
-![经典款皮肤](https://raw.githubusercontent.com/linyushu520/chenxingyu/main/images/S30801-18313390.png)
-❤️经典款皮肤❤️ 老玩家集体高潮😭🤤😡🥵🥰😋
+![经典款皮肤](https://raw.githubusercontent.com/linyushu520/chenxingyu/main/images/image.jpeg)\
+❤️一次性看个够❤ 
 
-![陈星宇本人照1](https://raw.githubusercontent.com/linyushu520/chengxinyu/main/images/S30730-18391641.png)
+![经典款皮肤](https://raw.githubusercontent.com/linyushu520/chenxingyu/main/images/S30801-18313390.png)\
+❤️经典款皮肤❤️ \
+老玩家集体高潮😭🤤😡🥵🥰😋
+
+![陈星宇本人照1](https://raw.githubusercontent.com/linyushu520/chengxinyu/main/images/S30730-18391641.png)\
 🐒陈星宇本人照1🐒
 
-![陈星宇本人照2](https://raw.githubusercontent.com/linyushu520/chengxinyu/main/images/Cache_71038aba8ef70e19.jpg)
+![陈星宇本人照2](https://raw.githubusercontent.com/linyushu520/chengxinyu/main/images/Cache_71038aba8ef70e19.jpg)\
 😋陈星宇本人照2🥵🐵
